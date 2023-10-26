@@ -9,3 +9,7 @@
 
    eduardo.souza.rodrigues@escola.pr.gov.br
 
+
+
+  ![](https://media.tenor.com/9RDx-QVKStsAAAAC/laughing-hysterically.gif)
+
